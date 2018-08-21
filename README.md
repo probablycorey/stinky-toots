@@ -1,2 +1,0 @@
-# stinky-toots
-no good
